@@ -36,6 +36,8 @@
  ![image](https://user-images.githubusercontent.com/113594316/198233336-dd9f5c19-481b-486a-928a-99c32a732f89.png)
 
  ## OUTPUT
+ ![EX 1 2 KANNAN _page-0001](https://github.com/user-attachments/assets/b8ac70e6-6305-49c1-af0d-28aa86a75f6a)
+
  
  
  ## RESULT
